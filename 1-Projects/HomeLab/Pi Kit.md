@@ -1,0 +1,3 @@
+https://www.amazon.com/CanaKit-Raspberry-Starter-Kit-PRO/dp/B0CRSNCJ6Y/ref=sr_1_1?crid=3F1G7T58MQ7EA&dib=eyJ2IjoiMSJ9.TzIAlcap-JN7BzO8wHpHCfXUvdypn7l9ZuqL4m4_AwLb-CmZhIlOT9mXqT844KPbDPJCO3HqaKRpkOkAKGnSS_AsPa2zpdHYmJuYRIho6ZgcbJoe2V8ZltC3Wm2CoRPgPiAneWM_j2wxqrFBDJO1KyH5hQP8KPLZhi-aduRYOI9mKFTOTMtv8Z0yT5eipN6xL4xgl-mPnlS5aKorNVWXn-CrIBV_y_6rVLh8Q1tNIjE.iOSTU3mgOmXvEaUqR_aQ3H2mKUKAjRVW-57rk2_glUs&dib_tag=se&keywords=raspberry%2Bpi%2B5&qid=1730561915&sprefix=raspberry%2Caps%2C145&sr=8-1&th=1
+
+[[]]
